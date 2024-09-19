@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**Effective Date: [Insert Date]**
+**Effective Date: September 1, 2024**
 
 This Privacy Policy explains how we collect, use, and disclose your personal information when you visit our website for trial purposes only.
 
